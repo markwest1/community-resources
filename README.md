@@ -150,9 +150,11 @@ For medical appointments, Medicaid covers transportation through **First Transit
 - **Safer Foundation** — (312) 922-2200 | 571 W. Jackson Blvd. Workforce reentry and employment services for returning citizens.
 - **City Colleges of Chicago Career Bridge Programs** — (773) COLLEGE | Tuition-free career programs in Culinary, Construction, Early Childhood Education, and more. [ccc.edu/site/bridge](http://www.ccc.edu/site/bridge)
 - **North Lawndale Employment Network** — (773) 638-1825 | Job readiness training for under- and unemployed residents.
+- **JARC - Manufacturing Job Training** - [jarctraining.org/locations/locations-chicago/](https://jarctraining.org/locations/locations-chicago/)
 
 ### Free Education (ESL & GED/HiSET)
-Available at City Colleges of Chicago locations for Illinois residents 18+. Covers ESL, GED/HiSET, citizenship prep, and job credential transition. Apply at [ccc.edu/site/adult-education](http://www.ccc.edu/site/adult-education).
+- Available at City Colleges of Chicago locations for Illinois residents 18+. Covers ESL, GED/HiSET, citizenship prep, and job credential transition. Apply at [ccc.edu/site/adult-education](http://www.ccc.edu/site/adult-education).
+- **JARC Adult Learners Program and Services (ALPS)** - [jarctraining.org/programs/programs-alps/](https://jarctraining.org/programs/programs-alps/)
 
 ### Community Re-Entry Support (Returning Citizens)
 Call 311 or visit one of these centers:
